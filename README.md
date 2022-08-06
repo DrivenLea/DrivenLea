@@ -24,7 +24,7 @@ I am DrivenLea
 - 
 
 
-this is my favourate song❤
+this is my favourite song❤
 
 life like a boat⛵
 
