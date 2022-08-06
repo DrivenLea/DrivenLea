@@ -14,14 +14,20 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+
+
+-->
 I am DrivenLea
 
+- 👯 I want to meet a lot of different people in this world
 - 🌱 I’m currently learning java and spring 
+- 
 
 
 this is my favourate song❤
 
--->life like a boat⛵
+life like a boat⛵
+
 Nobody knows who I really am,🙂
 
 I never felt this empty before.😭
